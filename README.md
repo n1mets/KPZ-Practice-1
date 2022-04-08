@@ -1,1 +1,0 @@
-# KPZ-Practice-1
